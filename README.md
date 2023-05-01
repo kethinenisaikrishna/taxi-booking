@@ -25,12 +25,7 @@ bca sbcd bcd ac
 casdcbasndcbasd
 csancb ansc
 vc vbcvcvcvbv'vvv
-bvbvv
-bvbv
-cbxncbncbndcbndbcn
-ndsbndbfcnbfcDSN
-cbdvcb
- qqq
+
  xns XMSmZ 
 nsdabncbndsbncd
 hdbjwhf
