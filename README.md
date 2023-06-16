@@ -24,7 +24,7 @@ cb xbc xbn zxB
 bca sbcd bcd ac
 casdcbasndcbasd
 csancb ansc
-vc vbcvcvcvbv'vvv
+vc vbcvcvcvbv
 
  xns XMSmZ 
 nsdabncbndsbncd
